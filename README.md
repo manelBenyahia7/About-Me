@@ -1,6 +1,9 @@
 #  Manal Benyahia
 
 **Nanotechnology Engineering Student | Nanomaterials & Membrane Technology**
+
+**Open to: Research opportunities, technical collaborations, internships**
+
 Algeria ·
 
 ## About Me
